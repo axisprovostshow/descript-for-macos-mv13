@@ -1,4 +1,4 @@
-# 
+# new Descript for macOS Script | glitch-effect + echo-removal is the best Descript for macOS script, featuring glitch-effect and echo-removal. Safe, efficient, and optimized for
 
 
 
